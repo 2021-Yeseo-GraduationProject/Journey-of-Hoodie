@@ -8,4 +8,4 @@
 <br>👌장르: 어드벤쳐 멀티 스토리 게임
 
 🎬게임영상
-> https://www.youtube.com/watch?v=hqnbaYw6VK4
+> https://www.youtube.com/watch?v=Cyr_vgb4His
